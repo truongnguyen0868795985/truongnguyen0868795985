@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Truong
 - 👀 I’m interested in front-end develop
 - 🌱 I’m currently learning reactjs
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+(ˉ﹃ˉ)(•_•);-):-P:-(( •_•)>⌐■-■(¬_¬ )
